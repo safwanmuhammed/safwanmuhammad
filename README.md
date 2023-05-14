@@ -31,6 +31,6 @@ Here are some of the projects that I've worked on:
 
 ## Contact me
 
-- Email: your.email@example.com
+- Email: your.safwanpp382@gmail.com
 - LinkedIn: [Your LinkedIn profile](link)
 - Twitter: [@YourTwitterHandle](link)
